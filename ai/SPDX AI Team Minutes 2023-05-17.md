@@ -2,7 +2,7 @@
 
 ## Attendess
 * Gopi Krishnan Rajbahadur
-*j ay white
+*Jay White
 * Spring Jono
 * Kate Stewart
 * Nick Schifano
